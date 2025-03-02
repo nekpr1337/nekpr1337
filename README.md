@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @nekpr1337
+- 👀 I’m interested in hvh and coding
+- 🌱 I’m currently learning C++
+- 📫 How to reach me telegram(@wh4umad) and discord(nekpr1337)
